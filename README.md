@@ -3,7 +3,7 @@
 
 [linkedin](https://www.linkedin.com/in/izulhq/) • [portofolio](https://izulhq.me) • [instagram](https://instagram.com/izulhq/)
   
-<img src="[![image]](https://i.pinimg.com/originals/c2/fb/bd/c2fbbda2392e36fb557c3003d1605858.jpg)">
+<img src="https://i.pinimg.com/originals/c2/fb/bd/c2fbbda2392e36fb557c3003d1605858.jpg">
 
 
 
