@@ -6,8 +6,7 @@
 
 [linkedin](https://www.linkedin.com/in/izulhq/) • [portofolio](https://izulhq.me) • [instagram](https://instagram.com/izulhq/)
   
-<img src="![image](https://github.com/user-attachments/assets/74c3e845-1e48-4872-aacb-4b3da89857f5)
-">
+<img src="![image](https://github.com/user-attachments/assets/74c3e845-1e48-4872-aacb-4b3da89857f5)">
 
 
 
